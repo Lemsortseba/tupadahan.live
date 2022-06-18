@@ -1,2 +1,0 @@
-# tupadahan.live
-PH SABONG
